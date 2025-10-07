@@ -1,6 +1,6 @@
 PRIVACY POLICY
 
-Last updated February 05, 2025
+Last updated October 07, 2025
 
 
 This Privacy Notice for JOEMDJOSSOU ("we," "us," or "our"), describes
